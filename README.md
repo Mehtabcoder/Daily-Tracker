@@ -6,5 +6,5 @@ Which told person his week progress
 Also compare with previous week progress
 
 
-This help person to improve himself
+This help person to improve 
 
